@@ -15,8 +15,8 @@ With the development of the technology, I believe that the players will perform 
 
 ### Reference: 
 
-Schultz, J. (2017a). Sport and the
-sociological imagination [PowerPoint slides]. Retrieved from https://cms.psu.edu/
+Schultz, J. (2017a). _Sport and the
+sociological imagination_ [PowerPoint slides]. Retrieved from https://cms.psu.edu/
 
 Schultz, J. (2017b). _Desegregation, integration and racial mythologies_.
 [PowerPoint slides]. Retrieved from https://cms.psu.edu/
@@ -28,7 +28,7 @@ Lapchick, R., Guiao, A (2015). _The 2015 racial and gender report card_. Retri
 
 Johnson, M., Lewis, T. (2009). _Basketball slave: the Andy Johnson Harlem globetrotter/ NBA story_. Mantua, NJ: Junior Cam Publishing.
 
-“List of NBA players to be suspended.”_ (2017). Retrieved from http://www.nydailynews.com/sports/basketball/nba-players-suspended-performance-enhancing-drugs-article-1.3011999
+_“List of NBA players to be suspended.”_ (2017). Retrieved from http://www.nydailynews.com/sports/basketball/nba-players-suspended-performance-enhancing-drugs-article-1.3011999
 
 
 
